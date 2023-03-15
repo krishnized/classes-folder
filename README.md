@@ -8,5 +8,11 @@
 * [Vatsala prabhu 9.18.28-29](https://www.youtube.com/watch?v=gJ6Mpu2ufYA)
 * [Rasayana Sagar Swami 9.18.6-16](https://www.youtube.com/watch?v=60QFrHWyOR8)
 
+### SB 9.19
+
+* [audiobook](https://www.youtube.com/watch?v=72hfjUMnVAY)
+* []()
+* []()
+
 # CC
 
