@@ -11,7 +11,8 @@
 ### SB 9.19
 
 * [audiobook](https://www.youtube.com/watch?v=72hfjUMnVAY)
-* [Hakimov 9.19.19](https://www.ahakimov.com/archive/shrimad-bhagavatam-9-19-19.html)
+* [Chaitanya Chandra Charan Prabhu 9.19.19](https://www.ahakimov.com/archive/shrimad-bhagavatam-9-19-19.html)
+* [Indradyumna Swami 9.19](https://narottam.com/2012/10/such-a-nice-place/)
 * []()
 
 # CC
